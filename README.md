@@ -6,4 +6,4 @@ I completed a Coffee Sales Data Analysis project in collaboration with UNP using
 
 https://drive.google.com/file/d/18790A5XUuRhVhNpO6x_Ae_ZQJAGh2blc/view?usp=sharing
 
-https://drive.google.com/file/d/18790A5XUuRhVhNpO6x_Ae_ZQJAGh2blc/view?usp=sharing
+https://drive.google.com/file/d/1qk7jIza4roevUsEUULO8B5COY7K6AvkD/view?usp=drive_link
